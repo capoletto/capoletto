@@ -1,0 +1,4 @@
+- 🤙 olá, sou a carolina ou como me chamam capoletto
+- 🫀 tenho 14 anos e faço em nov. 15
+- 📸 sou aluna do professor patrick de pensamento computacional 
+- 🌸 minha musica favorita é [Youtube] (
