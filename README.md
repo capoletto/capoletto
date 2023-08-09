@@ -1,4 +1,5 @@
 - 🤙 olá, sou a carolina ou como me chamam capoletto
 - 🫀 tenho 14 anos e faço em nov. 15
 - 📸 sou aluna do professor patrick de pensamento computacional 
-- 🌸 minha musica favorita é [Youtube] (
+- 🌸 minha musica favorita é [Youtube](https://www.youtube.com/watch?v=22V2sCzCPv0)
+- 🎈 ![](https://catland.org.br/wp-content/uploads/2023/04/foto-1.png)
